@@ -1,4 +1,4 @@
-# 
+# Enhance Sketch for macOS with Sketch for macOS secure Template: batch processing & auto-retouch, the #1 template. Includes batch processing and auto-retouch for a smoother and
 
 
 
